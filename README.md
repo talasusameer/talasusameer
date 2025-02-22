@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate supportive and hardwork people...
 - 📫 How to reach me sameertalasu814@gmail.com...
 - 😄 Pronouns: sammy
-- ⚡ Fun fact: i have less knowledge on elephant hockey 
+- ⚡ Fun fact: Ai gonna take all software jobs .
 
 <!---
 talasusameer/talasusameer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
